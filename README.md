@@ -2,7 +2,7 @@
 
 Посилання на скріншоти виконання команд:
 
-https://ibb.co/gWyZpSD
-https://ibb.co/JpLQQr7
-https://ibb.co/QFHLftw
-https://ibb.co/k6ZF4Xj
+1) https://ibb.co/gWyZpSD
+2) https://ibb.co/JpLQQr7
+3) https://ibb.co/QFHLftw
+4) https://ibb.co/k6ZF4Xj
